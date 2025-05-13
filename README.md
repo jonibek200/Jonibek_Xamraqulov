@@ -1,0 +1,2 @@
+# Jonibek_Xamraqulov
+DASTURIY INJENERINGGA KIRISH 
